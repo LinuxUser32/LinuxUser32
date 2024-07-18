@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LinuxUser32
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning How To Make Games you can also check out my game at https://linuxuser32.itch.io/rock-game
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I Have 4 Laptops With Each 0S Of Linux On Them
